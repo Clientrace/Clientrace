@@ -1,16 +1,29 @@
-## Hi there 👋
 
-<!--
-**Clientrace/Clientrace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### / - ˕ -マ : こんにちは | Hello 
+
+`c⋆l⋆i⋆e⋆n⋆t⋆r⋆a⋆c⋆e => c⋆l⋆a⋆r⋆e⋆n⋆c⋆e⋆⋆I⋆T`
+
+
+: I've been talking to computers to create stuff since 2013 and I think each year, they're getting better at understanding. (Or am I becomming a good communicator? ( • ᴗ - )✧ )
+
+
+
+__: Work History__
+- 💼 Currently working at __Salesbricks.com__
+- 🎒 Quickpage
+- 🎒 NextReason
+- 🎒 Lemongrass
+- 🎒 Philippine Dealing System Holding's Corp
+- 🎒 Indra Philippines
+
+
+
+: Checkout my personal website [here](https://www.clarence-penaflor.com/)
+
+
+
+
+
+
