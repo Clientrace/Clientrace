@@ -10,7 +10,7 @@
 
 
 : Checkout my personal website [here](https://www.clarence-penaflor.com/)
-
+![](https://komarev.com/ghpvc/?username=Clientrace&abbreviated=true)
 
 
 
