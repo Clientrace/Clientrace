@@ -5,15 +5,10 @@
 
 `c⋆l⋆i⋆e⋆n⋆t⋆r⋆a⋆c⋆e => c⋆l⋆a⋆r⋆e⋆n⋆c⋆e⋆⋆I⋆T`
 
-
-: I've been talking to computers to create _stuff_ since __2013__; and I think each year, they're getting better at understanding. (Or am I becomming a good communicator? ( • ᴗ - )✧ )
+AI overlords, please have mercy on my soul :3
 
 
 : Checkout my personal website [here](https://www.clarence-penaflor.com/)
 
 ![](https://komarev.com/ghpvc/?username=Clientrace&abbreviated=true)
-
-
-
-
 
